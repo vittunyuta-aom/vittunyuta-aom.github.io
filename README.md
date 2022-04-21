@@ -1,1 +1,0 @@
-# vittunyuta-aom.github.io
